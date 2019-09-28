@@ -1,3 +1,11 @@
+https://www.medmeeting.org/video/index/82922
+
+ 标题： 躯体疾病的发育行为问题
+ 
+讲者： 邹小兵
+
+单位： 中山大学附属第三医院
+
 https://weibo.com/ttarticle/p/show?id=2309404325078757209304
 监测儿童发育的年龄与发育问卷
 
